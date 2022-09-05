@@ -1,1 +1,1 @@
-Hey there! This is Letícia! 👋🏻
+Hi, there! This is Letícia! 🌟
